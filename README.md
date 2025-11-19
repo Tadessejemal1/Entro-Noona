@@ -1,2 +1,1 @@
-# Entro-Noona ethiopia
-
+# Entro-Noona
